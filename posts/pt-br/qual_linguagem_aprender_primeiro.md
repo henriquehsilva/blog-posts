@@ -7,4 +7,3 @@ Somos como uma ilha, que faz parte de um arquipélago que fala outra lingua espa
 comunicar com os continentes a nossa volta, que são bilingues e fala inglês. Todos as outras ilhotas (paises latinos que nós rodeiam) e demais paises falantes nativos da lingua inglesas, diferentemente do Brasil tem uma preocupação sincera em fomentar o inglês como segunda lingua.
 
 Quando precisamos ter alguma formação cientifica ou tecno
-
